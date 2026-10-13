@@ -1,0 +1,2 @@
+# premium-millefiori-glass-001-millefiori-glass-cane-thousa
+Tired of millefiori canes that crack, warp, or lose their pattern? The geometry of a thousand flowers is unforgiving, but this studio gives you the precision blueprint to build flawless glass canes every time.  This digital studio solves the core pain point of inconsistent cane assembly by providing step-by-step, visual instructions for constructin
